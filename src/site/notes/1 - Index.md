@@ -19,7 +19,13 @@ Booklists
 
 [[5 - Completed Pages/Booklist - Hypnokink Booklist|Booklist - Hypnokink Booklist]]
 
+Guides
+
+[[5 - Completed Pages/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
+
 Techniques
+
+[[5 - Completed Pages/Technique - The Eight Questions for Better Sex|Technique - The Eight Questions for Better Sex]]
 
 [[5 - Completed Pages/Technique - The Five Minute Aftercare Routine|Technique - The Five Minute Aftercare Routine]]
 
@@ -41,15 +47,9 @@ General Erotic Hypnosis (EH) Resources and Lists
 
 Tools for Content Creators
 
-[[Content Creators - How to Build a Wiki|Content Creators - How to Build a Wiki]]
+[[5 - Completed Pages/Guide - How to Build a Wiki|Guide - How to Build a Wiki]]
 
-#### Technical Details
-
-Copies of all of these source files can be found in the Resources Folder, along with all of my other content.
-
-Nerd Details: This site runs on a series of markdown-formatted text files, managed through Obsidian Notes, pushed to Github via the "Digital Garden" Community Plugin by Ole Eskild Steensen, more details are here https://notes.ole.dev/set-up-your-digital-garden/ and then rendered by Netlify.
-
-Total control of content and versioning, zero hosting cost. 
+[[5 - Completed Pages/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
 
 #### Future Planned Updates
 - [ ] Incorporate all Podcast Episode Notes as well
