@@ -9,14 +9,23 @@ Email [thewordsmithspeaks@pm.me](thewordsmithspeaks@pm.me) if you have any resou
 
 ### Index of Pages
 
-[[Hypnokink Content Creators|Hypnokink Content Creators]]
+Booklists
 
 [[5 - Completed Pages/Hypnokink Booklist|Hypnokink Booklist]]
 
-[[List of Hypnokink Websites|List of Hypnokink Websites]]
+General EH Resources and Lists
 
-[[List of Hypnokink Podcasts|List of Hypnokink Podcasts]]
+[[5 - Completed Pages/EH Content Creators|EH Content Creators]]
 
+[[5 - Completed Pages/EH Websites|EH Websites]]
+
+[[5 - Completed Pages/EH Podcasts|EH Podcasts]]
+
+[[5 - Completed Pages/EH Videogames Featuring Mind Control|EH Videogames Featuring Mind Control]]
+
+[[5 - Completed Pages/EH Conventions|EH Conventions]]
+
+[[5 - Completed Pages/Non-erotic Software for Learning Hypnosis|Non-erotic Software for Learning Hypnosis]]
 
 
 #### Future Planned Updates
