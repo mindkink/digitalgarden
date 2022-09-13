@@ -3,8 +3,6 @@
 ---
 
 
-tags: #booklist, #resourcelist
-
 Books are listed in no particular order.
 
 [Mastering Erotic Hypnosis](https://amzn.to/2nZgUo3) by James Gordon
