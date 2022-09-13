@@ -9,7 +9,7 @@ Email me [HERE](mailto:thewordsmithspeaks@pm.me) if you have resources you want 
 
 #### All of My Work
 
-https://bio.link/mindkink - I offer personal Coaching and Consulting on Kink and Ds Relationships - tell me your problems and I'll fix them, or help you design your dream kink life. There's also the Podcast, the Resources Folder, Templates and Printables, Complete Workshops and a lot of of things can be found at this link. Seriously. Check it out. It's a LOT of free content.
+[https://bio.link/mindkink](https://bio.link/mindkink) - I offer personal Coaching and Consulting on Kink and Ds Relationships - tell me your problems and I'll fix them, or help you design your dream kink life. There's also the Podcast, the Resources Folder, Templates and Printables, Complete Workshops and a lot of of things can be found at this link. Seriously. Check it out. It's a LOT of free content.
 
 Share my content with everyone, use the link above.
 
@@ -22,6 +22,8 @@ Booklists
 Guides
 
 [[5 - Completed Pages/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
+
+[[5 - Completed Pages/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
 
 Techniques
 
