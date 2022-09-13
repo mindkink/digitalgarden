@@ -11,6 +11,12 @@ Email [thewordsmithspeaks@pm.me](thewordsmithspeaks@pm.me) if you have any resou
 
 [[Hypnokink Content Creators|Hypnokink Content Creators]]
 
+[[5 - Completed Pages/Hypnokink Booklist|Hypnokink Booklist]]
+
+[[List of Hypnokink Websites|List of Hypnokink Websites]]
+
+[[List of Hypnokink Podcasts|List of Hypnokink Podcasts]]
+
 
 
 #### Future Planned Updates
