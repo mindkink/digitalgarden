@@ -7,6 +7,8 @@ Welcome!
 
 Email me [HERE](mailto:thewordsmithspeaks@pm.me) if you have resources you want added, corrections or updates.
 
+As always, this is for ❤️
+
 #### All of My Work
 
 [https://bio.link/mindkink](https://bio.link/mindkink) - I offer personal Coaching and Consulting on Kink and Ds Relationships - tell me your problems and I'll fix them, or help you design your dream kink life. There's also the Podcast, the Resources Folder, Templates and Printables, Complete Workshops and a lot of of things can be found at this link. Seriously. Check it out. It's a LOT of free content.
@@ -17,51 +19,48 @@ Share my content with everyone, use the link above.
 
 Booklists
 
-[[5 - Completed Pages/Booklist - Hypnokink Booklist|Booklist - Hypnokink Booklist]]
+[[Completed/Booklist - Hypnokink Booklist|Booklist - Hypnokink Booklist]]
 
 Guides
 
-[[5 - Completed Pages/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
+[[Completed/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
 
-[[5 - Completed Pages/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
+[[Completed/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
 
 Techniques
 
-[[5 - Completed Pages/Technique - The Eight Questions for Better Sex|Technique - The Eight Questions for Better Sex]]
+[[Completed/Technique - The Eight Questions for Better Sex|Technique - The Eight Questions for Better Sex]]
 
-[[5 - Completed Pages/Technique - The Five Minute Aftercare Routine|Technique - The Five Minute Aftercare Routine]]
+[[Completed/Technique - The Five Minute Aftercare Routine|Technique - The Five Minute Aftercare Routine]]
 
-[[5 - Completed Pages/Technique - The After Action Review (AAR)|Technique - The After Action Review (AAR)]]
+[[Completed/Technique - The After Action Review (AAR)|Technique - The After Action Review (AAR)]]
 
 General Erotic Hypnosis (EH) Resources and Lists
 
-[[5 - Completed Pages/Resource - EH Content Creators|Resource - EH Content Creators]]
+[[Completed/Resource - EH Content Creators|Resource - EH Content Creators]]
 
-[[5 - Completed Pages/Resource - EH Conventions|Resource - EH Conventions]]
+[[Completed/Resource - EH Conventions|Resource - EH Conventions]]
 
-[[5 - Completed Pages/Resource - EH Websites|Resource - EH Websites]]
+[[Completed/Resource - EH Websites|Resource - EH Websites]]
 
-[[5 - Completed Pages/Resource - EH Podcasts|Resource - EH Podcasts]]
+[[Completed/Resource - EH Podcasts|Resource - EH Podcasts]]
 
-[[5 - Completed Pages/Resource - EH Videogames Featuring Mind Control|Resource - EH Videogames Featuring Mind Control]]
+[[Completed/Resource - EH Videogames Featuring Mind Control|Resource - EH Videogames Featuring Mind Control]]
 
-[[5 - Completed Pages/Resource - Non-erotic Software for Learning Hypnosis|Resource - Non-erotic Software for Learning Hypnosis]]
+[[Completed/Resource - Non-erotic Software for Learning Hypnosis|Resource - Non-erotic Software for Learning Hypnosis]]
 
 Tools for Content Creators
 
-[[5 - Completed Pages/Guide - How to Build a Wiki|Guide - How to Build a Wiki]]
+[[Completed/Guide - How to Build a Wiki|Guide - How to Build a Wiki]]
 
-[[5 - Completed Pages/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
+[[Completed/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
 
 Resources for Broader Kink
 
-[[5 - Completed Pages/Resource - List of Sources of Kink Education|Resource - List of Sources of Kink Education]]
+[[Completed/Resource - List of Sources of Kink Education|Resource - List of Sources of Kink Education]]
 
 #### Future Planned Updates
-- [ ] Incorporate all Podcast Episode Notes as well
 - [ ] Build more content for people wanting to learn how to be good subjects
-- [ ] Add writeups of all my previous techniques
-- [ ] Add a section for Hypnosis Scripts? are these better distributed as TXT files in Resources Folder?
 
 #### Changelog
 
