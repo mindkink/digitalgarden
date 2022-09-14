@@ -33,9 +33,9 @@ The intention of these questions is to bring people together to have fun, by goi
 
 By Yourself - The best thing is to practice answering these questions yourself a few times alone before involving a partner, for easy and simple practice. First commit to total honesty with yourself. You don't have to like everything that comes up, but you also don't have to DO any of it either, its a self exploration exercise and you must be completely honest with yourself. You do not have to share these answers with anyone.
 
-Close your eyes, eliminate distractions and allow your mind to wander as you ask yourself these questions and write down the first thing that comes up inside you. Thank your unconscious and feel proud that you are connecting with it in a healthy way. With a Partner - You are discussing sex or sexual play. A partner volunteers to go first, answering a
+Close your eyes, eliminate distractions and allow your mind to wander as you ask yourself these questions and write down the first thing that comes up inside you. Thank your unconscious and feel proud that you are connecting with it in a healthy way. 
 
-question, then their partner answers the same question. Use as much detail as you can, and hold nothing back - be completely honest and open with your partner. Move through the questions, connecting with each other and exploring and eliciting
+With a Partner - You are discussing sex or sexual play. A partner volunteers to go first, answering a question, then their partner answers the same question. Use as much detail as you can, and hold nothing back - be completely honest and open with your partner. Move through the questions, connecting with each other and exploring and eliciting
 
 ### WHEN to use these Questions?
 
