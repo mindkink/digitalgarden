@@ -53,6 +53,10 @@ Tools for Content Creators
 
 [[5 - Completed Pages/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
 
+Resources for Broader Kink
+
+[[5 - Completed Pages/Resource - List of Sources of Kink Education|Resource - List of Sources of Kink Education]]
+
 #### Future Planned Updates
 - [ ] Incorporate all Podcast Episode Notes as well
 - [ ] Build more content for people wanting to learn how to be good subjects
