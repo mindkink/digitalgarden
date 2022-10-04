@@ -19,45 +19,49 @@ Share my content with everyone, use the link above.
 
 Booklists
 
-[[Completed/Booklist - Hypnokink Booklist|Booklist - Hypnokink Booklist]]
+[[fin/Booklist - Hypnokink Booklist|Booklist - Hypnokink Booklist]]
 
 Guides
 
-[[Completed/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
+[[Guide - How I Do It and Tools I Use|Guide - How I Do It and Tools I Use]]
 
-[[Completed/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
+[[fin/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
+
+[[fin/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
 
 Techniques
 
-[[Completed/Technique - The Eight Questions for Better Sex|Technique - The Eight Questions for Better Sex]]
+[[fin/Technique - The Eight Questions for Better Sex|Technique - The Eight Questions for Better Sex]]
 
-[[Completed/Technique - The Five Minute Aftercare Routine|Technique - The Five Minute Aftercare Routine]]
+[[fin/Technique - The Five Minute Aftercare Routine|Technique - The Five Minute Aftercare Routine]]
 
-[[Completed/Technique - The After Action Review (AAR)|Technique - The After Action Review (AAR)]]
+[[fin/Technique - The After Action Review (AAR)|Technique - The After Action Review (AAR)]]
 
 General Erotic Hypnosis (EH) Resources and Lists
 
-[[Completed/Resource - EH Content Creators|Resource - EH Content Creators]]
+[[fin/Resource - EH Content Creators|Resource - EH Content Creators]]
 
-[[Completed/Resource - EH Conventions|Resource - EH Conventions]]
+[[fin/Resource - EH Conventions|Resource - EH Conventions]]
 
-[[Completed/Resource - EH Websites|Resource - EH Websites]]
+[[fin/Resource - EH Websites|Resource - EH Websites]]
 
-[[Completed/Resource - EH Podcasts|Resource - EH Podcasts]]
+[[fin/Resource - EH Podcasts|Resource - EH Podcasts]]
 
-[[Completed/Resource - EH Videogames Featuring Mind Control|Resource - EH Videogames Featuring Mind Control]]
+[[fin/Resource - EH Videogames Featuring Mind Control|Resource - EH Videogames Featuring Mind Control]]
 
-[[Completed/Resource - Non-erotic Software for Learning Hypnosis|Resource - Non-erotic Software for Learning Hypnosis]]
+[[fin/Resource - Non-erotic Software for Learning Hypnosis|Resource - Non-erotic Software for Learning Hypnosis]]
 
 Tools for Content Creators
 
-[[Completed/Guide - How to Build a Wiki|Guide - How to Build a Wiki]]
+[[fin/Guide - How to Build a Wiki|Guide - How to Build a Wiki]]
 
-[[Completed/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
+[[fin/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
 
 Resources for Broader Kink
 
-[[Completed/Resource - List of Sources of Kink Education|Resource - List of Sources of Kink Education]]
+[[fin/Resource - List of Sources of Kink Education|Resource - List of Sources of Kink Education]]
+
+[[fin/List - Sourcing Chemicals|List - Sourcing Chemicals]]
 
 #### Future Planned Updates
 - [ ] Build more content for people wanting to learn how to be good subjects
