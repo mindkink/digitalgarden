@@ -53,7 +53,7 @@ Discord can also work, hypnokink discord is a collection of the most dysfunction
 
 [https://obsidian.md/](https://obsidian.md/) or [https://typora.io/](https://typora.io/) for creating and editing Markdown formatted text (seriously use this it will save you so much time) which will display consistently everywhere. 
 
-https://copysmith.ai/ (Paid) for creating rough draft ad copy for your website, newsletter, etc.
+[https://copysmith.ai/](https://copysmith.ai/) (Paid) for creating rough draft ad copy for your website, newsletter, etc.
 
 ### Monetise Your Content
 
