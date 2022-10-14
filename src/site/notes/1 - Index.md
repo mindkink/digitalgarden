@@ -21,14 +21,6 @@ Booklists
 
 [[fin/Booklist - Hypnokink Booklist|Booklist - Hypnokink Booklist]]
 
-Guides
-
-[[Guide - How I Do It and Tools I Use|Guide - How I Do It and Tools I Use]]
-
-[[fin/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
-
-[[fin/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
-
 Techniques
 
 [[fin/Technique - The Eight Questions for Better Sex|Technique - The Eight Questions for Better Sex]]
@@ -43,8 +35,6 @@ General Erotic Hypnosis (EH) Resources and Lists
 
 [[fin/Resource - EH Conventions|Resource - EH Conventions]]
 
-[[fin/Resource - EH Websites|Resource - EH Websites]]
-
 [[fin/Resource - EH Podcasts|Resource - EH Podcasts]]
 
 [[fin/Resource - EH Videogames Featuring Mind Control|Resource - EH Videogames Featuring Mind Control]]
@@ -56,6 +46,14 @@ Tools for Content Creators
 [[fin/Guide - How to Build a Wiki|Guide - How to Build a Wiki]]
 
 [[fin/Resource - Tools for Hypnokink Content Distribution|Resource - Tools for Hypnokink Content Distribution]]
+
+Guides
+
+[[fin/Guide - How I Do It and Tools I Use|Guide - How I Do It and Tools I Use]]
+
+[[fin/Guide - How to use Hypnotic Audio Files|Guide - How to use Hypnotic Audio Files]]
+
+[[fin/Guide - Some Notes on Injecting Drugs and Brainwashing Pills|Guide - Some Notes on Injecting Drugs and Brainwashing Pills]]
 
 Resources for Broader Kink
 
