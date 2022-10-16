@@ -61,9 +61,11 @@
 
 [https://www.patreon.com/Entrancement](https://www.patreon.com/Entrancement) - LexUK **- Excellent**
 
-[https://www.patreon.com/UltraHypnosis](https://www.patreon.com/UltraHypnosis) - UltraHypnosis
-
 [https://www.patreon.com/Chewtoy](https://www.patreon.com/Chewtoy) - Chewtoy - **Woefully Underappreciated**
+
+[https://www.patreon.com/pandastory](https://www.patreon.com/pandastory) - PandaStory - Educational Content
+
+[https://www.patreon.com/deepdiscourse](https://www.patreon.com/deepdiscourse) - DeepDiscourse
 
 [https://www.patreon.com/EnScenic](https://www.patreon.com/EnScenic) - EnScenic
 
@@ -72,6 +74,8 @@
 [https://www.patreon.com/pedevelopment](https://www.patreon.com/pedevelopment) - Perverted Development
 
 [https://www.patreon.com/hypnoticharlequin](https://www.patreon.com/hypnoticharlequin) - HypnoticHarlequin
+
+[https://www.patreon.com/UltraHypnosis](https://www.patreon.com/UltraHypnosis) - UltraHypnosis
 
 [https://www.patreon.com/OverlordMiles](https://www.patreon.com/OverlordMiles) - OverlordMiles
 
@@ -83,21 +87,34 @@
 
 [https://www.patreon.com/Kallie](https://www.patreon.com/Kallie) - Kallie
 
-[https://soundgasm.net/u/ChaosDoll/](https://soundgasm.net/u/ChaosDoll/)
-
-[https://soundgasm.net/u/LilithUnleashed/](https://soundgasm.net/u/LilithUnleashed/)
-
 ## Soundgasm
-
-[https://soundgasm.net/u/Earesistible/](https://soundgasm.net/u/Earesistible/)
-
-[https://soundgasm.net/u/MistressTess](https://soundgasm.net/u/MistressTess)
-
-[https://soundgasm.net/u/DrSarhom](https://soundgasm.net/u/DrSarhom)
 
 [https://soundgasm.net/u/missvhypnosis](https://soundgasm.net/u/missvhypnosis) - Miss V - **Particularly Skilled.**
 
+[https://soundgasm.net/u/Earesistible/](https://soundgasm.net/u/Earesistible/) - Earisistable
+
+[https://soundgasm.net/u/MistressTess](https://soundgasm.net/u/MistressTess) - MistressTess
+
+[https://soundgasm.net/u/DrSarhom](https://soundgasm.net/u/DrSarhom) - DrSarhom
+
+[https://soundgasm.net/u/ChaosDoll/](https://soundgasm.net/u/ChaosDoll/) - ChaosDoll
+
+[https://soundgasm.net/u/LilithUnleashed/](https://soundgasm.net/u/LilithUnleashed/) - LillithUnleashed
+
+## Soundcloud
 
 [https://soundcloud.com/user-321055361](https://soundcloud.com/user-321055361) - Hoosen
 
+[https://soundcloud.com/ella-enchanting](https://soundcloud.com/ella-enchanting) - EllaEnchanting - **Particularly Skilled.**
+
+[https://soundcloud.com/user-618023958](https://soundcloud.com/user-618023958) - Impish
+
+## Youtube
+
+[https://www.youtube.com/channel/UCeeIuVpaDwrTtUFz2TDJTlw](https://www.youtube.com/channel/UCeeIuVpaDwrTtUFz2TDJTlw) - SexObsessedLesbian - **Particularly Skilled.**
+
 [https://www.youtube.com/channel/UCYJ10IbS6EKtr6VptnUdd7w](https://www.youtube.com/channel/UCYJ10IbS6EKtr6VptnUdd7w) - Darknosis
+
+## Other
+
+https://tillymleep.wixsite.com/the-ehrc
